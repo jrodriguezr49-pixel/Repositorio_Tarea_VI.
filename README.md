@@ -1,1 +1,0 @@
-# Repositorio_Tarea_VI.
